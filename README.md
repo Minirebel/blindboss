@@ -1,4 +1,4 @@
-#blindboss is here!
+# blindboss is here!
 --------
 is balatro too easy? well now all blinds are boss blinds, :)
 ------
